@@ -8,4 +8,4 @@
 
 • 📈 Passion in entrepreneurship and investments
 
-• 📧 Contact: tudordan25@gmail.com
+• 📧 Contact: tudordan25@gmail.com Linkedin: https://ro.linkedin.com/in/tudor-dan-293800208
