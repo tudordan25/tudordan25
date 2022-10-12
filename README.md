@@ -1,6 +1,6 @@
 ### Dan Tudor 👋
 
-• 📓 3rd year student at UTCN, Computer Science
+• 📓 4th year student at UTCN, Computer Science
 
 • 💻 Interest in software development, especially in mobile development(Android)
 
