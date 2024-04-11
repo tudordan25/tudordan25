@@ -1,8 +1,9 @@
 ### Dan Tudor 👋
+• 📱 Flutter Developer
 
-• 📓 4th year student at UTCN, Computer Science
+• 📓 Graduated from UTCN, Computer Science
 
-• 💻 Interest in software development, especially in mobile development(Android)
+• 💻 Interest in software development, especially in mobile development(Flutter)
 
 • 👀 Looking to colaborate on projects and learn new skills
 
